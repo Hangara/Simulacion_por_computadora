@@ -4,3 +4,7 @@
 https://github.com/Hangara/Simulacion_por_computadora_Leonel_Rubio/assets/81195386/79d0330c-a54f-4145-b0b6-6ee6f5b4b847
 
 
+
+
+https://github.com/Hangara/Simulacion_por_computadora_Leonel_Rubio/assets/81195386/1ec31c0d-c2f9-45c2-899b-2679763df7b4
+
